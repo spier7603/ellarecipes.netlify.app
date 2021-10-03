@@ -1,0 +1,101 @@
+---
+description: "Recipe of Any-night-of-the-week Zucchini boat lasagna"
+title: "Recipe of Any-night-of-the-week Zucchini boat lasagna"
+slug: 3373-recipe-of-any-night-of-the-week-zucchini-boat-lasagna
+date: 2022-02-24T22:01:47.960Z
+image: https://img-global.cpcdn.com/recipes/489172a674ab5138/680x482cq70/zucchini-boat-lasagna-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/489172a674ab5138/680x482cq70/zucchini-boat-lasagna-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/489172a674ab5138/680x482cq70/zucchini-boat-lasagna-recipe-main-photo.jpg
+author: Ann Strickland
+ratingvalue: 4.3
+reviewcount: 5876
+recipeingredient:
+- " Hamburger"
+- " Ground italian sausage"
+- " Ricotta cheese"
+- " minced garlic"
+- " Pizza sauce"
+- " shredded mozzarella cheese"
+- " Sliced Pepperoni"
+- " mediumsized zucchinis"
+- " Olive oil"
+- " Garlic salt"
+recipeinstructions:
+- "Cut zucchini in half length way. Use a spoon and scrape seeds out makeing a boat"
+- "When Coat the inside lightly with olive oil and lightly season with garlic salt."
+- "Put on foil covered cookie sheet cut side down, this helps steam the zucchini. Bake at 350 degrees for 30 minutes or till zucchini is pierced with a fork easily."
+- "While zucchini is baking in a fyring pan brown the sausage and hamburger mix in the minced garlic while frying."
+- "When done browning remove from heat and drain greece. Return to burner and ad 3/4 of the jar of pizza sauce cook till starts to bubble then remove from heat."
+- "When the zucchini is cooked remove from oven."
+- "At this point meat and sauce cooled a little, now add the whole container of ricotta cheese to the mix and stir well."
+- "After mixed fill each boat with the mixture."
+- "Place a layer of pepperoni on top then coat every thing with mozzarella cheese."
+- "Lastly drizzle leftover sauce lightly over cheese."
+- "Return to oven for 15 minutes, it is done enjoy."
+categories:
+- Recipe
+tags:
+- zucchini
+- boat
+- lasagna
+
+katakunci: zucchini boat lasagna 
+nutrition: 145 calories
+recipecuisine: American
+preptime: "PT35M"
+cooktime: "PT40M"
+recipeyield: "4"
+recipecategory: Dinner
+
+---
+
+
+![Zucchini boat lasagna](https://img-global.cpcdn.com/recipes/489172a674ab5138/680x482cq70/zucchini-boat-lasagna-recipe-main-photo.jpg)
+
+Hey everyone, it's me, Dave, welcome to our recipe page. Today, we're going to make a special dish, zucchini boat lasagna. One of my favorites. For mine, I am going to make it a little bit tasty. This is gonna smell and look delicious.
+
+You won&#39;t even miss that pasta in this hearty, flavorful and CHEESY lasagna dish! You may be thinking, how could these be that good? His Low Carb Zucchini Lasagna Boat recipe is not only delicious, but it&#39;s also a Keto and Gluten-free recipe that&#39;s made with ground turkey instead of beef. These low-carb Veggie Lasagna Zucchini Boats are basically hollowed out zucchinis stuffed with a veggie lasagna filling and baked in the oven with marinara sauce and melted cheese - SO GOOD!
+
+Zucchini boat lasagna is one of the most favored of current trending meals on earth. It's simple, it's quick, it tastes yummy. It is appreciated by millions daily. Zucchini boat lasagna is something which I have loved my entire life. They're nice and they look fantastic.
+
+
+To begin with this recipe, we have to prepare a few ingredients. You can cook zucchini boat lasagna using 10 ingredients and 11 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Zucchini boat lasagna:
+
+1. Take  Hamburger
+1. Take  Ground italian sausage
+1. Make ready  Ricotta cheese
+1. Make ready  minced garlic
+1. Get  Pizza sauce
+1. Get  shredded mozzarella cheese
+1. Make ready  Sliced Pepperoni
+1. Make ready  medium-sized zucchini&#39;s
+1. Make ready  Olive oil
+1. Take  Garlic salt
+
+
+How many calories are in lasagna zucchini boats? These zucchini lasagna boats are stuffed with the tastiest lasagna filling: ricotta, Parmesan and mozzarella cheese, spinach, and a tangy marinara sauce. Keto Zucchini Lasagna Boats are low carb lover&#39;s dream! Try this delicious entree made with ground beef, ricotta, mozza and parmesan cheese. 
+
+<!--inarticleads2-->
+
+##### Steps to make Zucchini boat lasagna:
+
+1. Cut zucchini in half length way. Use a spoon and scrape seeds out makeing a boat
+1. When Coat the inside lightly with olive oil and lightly season with garlic salt.
+1. Put on foil covered cookie sheet cut side down, this helps steam the zucchini. Bake at 350 degrees for 30 minutes or till zucchini is pierced with a fork easily.
+1. While zucchini is baking in a fyring pan brown the sausage and hamburger mix in the minced garlic while frying.
+1. When done browning remove from heat and drain greece. Return to burner and ad 3/4 of the jar of pizza sauce cook till starts to bubble then remove from heat.
+1. When the zucchini is cooked remove from oven.
+1. At this point meat and sauce cooled a little, now add the whole container of ricotta cheese to the mix and stir well.
+1. After mixed fill each boat with the mixture.
+1. Place a layer of pepperoni on top then coat every thing with mozzarella cheese.
+1. Lastly drizzle leftover sauce lightly over cheese.
+1. Return to oven for 15 minutes, it is done enjoy.
+
+
+Keto Zucchini Lasagna Boats are low carb lover&#39;s dream! Try this delicious entree made with ground beef, ricotta, mozza and parmesan cheese. Keto Zucchini Lasagna Boats. © Easy Low Carb.com. This zucchini lasagna boats dish packs all the flavors of lasagna, but with a healthy low carb spin since we are replacing pasta with zucchini. Vegetarian stuffed zucchini does particularly well for me. 
+
+So that is going to wrap it up with this special food zucchini boat lasagna recipe. Thank you very much for reading. I'm confident that you can make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
